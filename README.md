@@ -1,2 +1,2 @@
-- 👋 Hi, I’m TylerMinecraft Roblox ECT
+- 👋 Hi, I’m Tyler I like to play Minecraft Roblox ECT
 - 📫 How to reach me, Gmail- Haletyler960@gmail.com
